@@ -48,4 +48,6 @@ GN-MATH 1 IS ALSO LIKELY UNBLOCKED ON EVERYTHING (except lanschool and securly)
 
 DM "EVIL lincoln" ON DISCORD FOR GN-MATH DISCORD AND GN-MATH BOT FOR GEN LINKS AND CHECK IF WEBSITES ARE BLOCKED
 
+BLOOKET BOT (only works on santa workshop, crypto hack, goldquest and fishing frenzy) blooketbot.b-cdn.net
+
 (also creating a new github without any games and mainly focuses on Tools insted of games)
